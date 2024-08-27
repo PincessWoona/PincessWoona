@@ -6,7 +6,7 @@
   - Misskey: https://ponysocial.ru/woona
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact:
-  -   
+  - I hate fucking coders who get involved in politics. Go fuck yourself.
 
 <!---
 PincessWoona/PincessWoona is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
